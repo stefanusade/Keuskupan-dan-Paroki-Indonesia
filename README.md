@@ -1,1 +1,1 @@
-# Data-Keuskupan-dan-Paroki-di-Indonesia
+# Data Keuskupan dan Paroki di Indonesia
